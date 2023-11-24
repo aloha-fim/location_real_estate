@@ -1,0 +1,1 @@
+# location_real_estate
